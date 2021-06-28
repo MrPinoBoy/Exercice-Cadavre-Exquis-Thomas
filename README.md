@@ -19,3 +19,6 @@ But this calmness left the place to an *enormous noise*, a kind of rumbling.
 ### Fear or curiosity
 
 The little turtle was torn between fear and curiosity.
+This noise came from deeper in the cave someone was screaming in fear and pain, **Stanley the turtle** began to swim as fast as he could until he got his leg stuck between two huge rocks. With fear the seconds seemed to last for hours, the "Thing" came closer and closer, before noticing that it was her parents who had been looking for her for too long.
+
+##END
