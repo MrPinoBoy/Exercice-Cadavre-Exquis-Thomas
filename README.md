@@ -10,3 +10,12 @@ There once was a [little turtle](https://i.pinimg.com/originals/4f/69/89/4f6989c
 
 This mysterious cave was called the "cave of the monster".No one had ever come out of it alive.
 The little turtle decided to go inside.
+
+After swimming for a few moments in the clear, cool water, the little turtle was tired.
+She decided to rest for a few moments are a rocky outcrop.
+She rested for a few minutes in the greatest of calm.
+But this calmness left the place to an *enormous noise*, a kind of rumbling.
+
+### Fear or curiosity
+
+The little turtle was torn between fear and curiosity.
